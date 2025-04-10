@@ -1,1 +1,12 @@
 # -Here-the-live-match-UFC-314-Alexander-vs-Diego-
+
+We have seen many such fights but the one which got our head up was the coming war between them which was put on November 9, 2023, at UFC 314. Below is a more humanized glimpse at their matchup:
+Alexander Volkanovski: The Veteran Seeking Redemption
+© 2023 Fortune Media IP Limited. All Rights Reserved. At 36 years old, he is up against a lot, not least the back-to-back brutal knockouts he suffered against Islam Makhachev and Ilia Topuria. Despite these obstacles, Volkanovski is still confident in his abilities, highlighting his past experience and strategic capabilities as strong points. His motivation is not just personal glory; he fights for family, with a new addition on the way, and to silence doubters.
+Volkanovski's plan is to utilize his footwork to avoid Lopes' early flurries, and exhaust him as the rounds wear on. While dangerous, Lopes’ style can also be his undoing if he chases a finish too recklessly, according to Ramos.
+Diego Lopes:Gilded Age of Truth
+Diego Lopes, 30, has quickly risen in the featherweight ranks after winning five straight fights. His journey to this title fight began with a daring decision to take on Movsar Evloev on short notice, which, despite a defeat, showed off his skill. Lopes is noted for his risk-taking and his knockout power, but he also has a solid grappling background on which he's worked 12 submissions in his career.
+Lopes has a mindset of taking the chance when it comes to him. He doesn't see it as merely a fight, and he won't just win it, but he also believes he's ready to take advantage of the fact that Volkanovski has shown weaknesses in his last efforts. I expect Lopes' strategy will be to stay aggressive, and hope Volkanovski is careless early on, at which point Lopes can land a decisive blow.
+The Clash of Styles
+This matchup is very much a clash of styles: Volkanovski is one of the most strategic fighters on the entire roster, while Lopes is a classic aggressive brawler. The outcome will rely on if Volkanovski can evade Lopes until he tires out and take advantage of Lopes' potential cardio issues in the later rounds. If Lopes can keep up his pace, however, and connect with a clean shot, he could also win via knockout and take the belt.tooltip
+For Lopes, it's his first UFC title on the line — and for Volkanovski, redemption. An exciting matchup of generations and fighting philosophies, is on deck.
